@@ -1,0 +1,4 @@
+* Nails
+* Hair
+* Hips
+* Heels
